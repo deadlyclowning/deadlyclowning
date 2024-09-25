@@ -7,8 +7,6 @@
  ${\textsf{\color{#dc1717}•✦───✧ ABOUT ME ✧───✦•}}$ 
 </h2 div> 
  
-<div align="center">
- 
 **Name** ➺ Lyra / Micro
 
 **Age** ➺ 18
@@ -17,17 +15,15 @@
 
 **Sexuality** ➺ bisexual
 
-**Interests** ➺ Hazbin Hotel, baking, arts and crafts, cats, lego monkie kid, fortnite, batim
-
-**RedSon rp blog** ➺ [flame-thrwer](https://www.tumblr.com/flame-thrwer)
+**Interests** ➺ Hazbin Hotel, baking, arts and crafts, cats, lego monkie kid, fortnite, batim, and more stuff ueu
 
 </div>
 
-<strong align="center">
- 
+<h2 strong div align="center"> 
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
+</h2 div>
 <p align="center">
-<img width="600" src="https://64.media.tumblr.com/6a6b303ce8147cd2d4c303a98c350af0/21f098bcf9c3d012-1d/s1280x1920/3785ac97ffa8c34804350c2c0bf9d76dafe890ba.pnj">
+<img width="600" src="https://github.com/user-attachments/assets/137d98db-ba26-40c1-b907-20e969a154f2">
 </p> 
 
 <h2 strong div align="center"> 
@@ -39,14 +35,18 @@ We are a system - alters will only front if under high stress or going through a
 ***[F/O list](<https://lyras-blorbos.carrd.co/>) | [Strawpage mailbox](<https://microsmailbox.straw.page/>) | [My tumblr](https://www.tumblr.com/lunarbroadcast)***
 </div>
 
+<p align="center">
+<img width="600" src="https://github.com/user-attachments/assets/f9efb749-bfa1-425f-bd03-0313e02a39fb">
+</p> 
+
 <h2 strong div align="center"> 
  ${\textsf{\color{#dc1717}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
-<div align="center">
-
 • I'll usually be in my Soulbond skin vibing with the TCOAAL people or in the doocks looking for roleplays (feel free to say hi!)
-<img width="263" alt="Screenshot 2024-09-05 010227" src="https://github.com/user-attachments/assets/8d9cc827-c3f4-483b-8f3c-00f3b7860368">
+<p align="center">
+<img width="600" src="https://github.com/user-attachments/assets/8d9cc827-c3f4-483b-8f3c-00f3b7860368">
+</p> 
 
 • I don't mind people cuddling or interacting! :3
 
@@ -93,8 +93,4 @@ We are a system - alters will only front if under high stress or going through a
 
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
-**• RedSon graphics ➺ A ciel alter who is gone- i requested these before he went away so i thought i'd finally use them (i didnt talk to him alot but they were a cool person very funky)
-
-<p align="center">
-<img width="600" src="https://64.media.tumblr.com/89ffb74cdc88bdae9ff22a1e78212fdb/21f098bcf9c3d012-1d/s1280x1920/48ed5899e1538c241efd377e6a84a71c1815a00f.pnj">
-</p> 
+**• RedSon graphics ➺ A ciel alter who is gone- i requested these before he went away so i thought i'd finally use them (i didnt talk to him alot but they were a cool person very funky) 

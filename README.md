@@ -19,9 +19,9 @@
 
 </div>
 
-<h2 strong div align="center"> 
+<h3 strong div align="center"> 
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
-</h2 div>
+</h3 div>
 <p align="center">
 <img width="600" src="https://github.com/user-attachments/assets/137d98db-ba26-40c1-b907-20e969a154f2">
 </p> 

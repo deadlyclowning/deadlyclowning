@@ -87,10 +87,8 @@ We are a system - alters will only front if under high stress or going through a
 
 **• bar dividers ➺ ([peachesboard](<https://www.tumblr.com/peachesboard>))**
 
-**• redson icon in the userboxes ➺ [azuremist](<https://www.tumblr.com/azuremist/707024698488324096/i-made-an-hq-version-of-red-sons-icon-which-can>)**
-
-**• redson userboxes ➺ mee :3c**
+**• userboxes ➺ mee :3c**
 
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
-**• RedSon graphics ➺ A ciel alter who is gone- i requested these before he went away so i thought i'd finally use them (i didnt talk to him alot but they were a cool person very funky) 
+**• Clownpierce graphics ➺ [kyxmli](https://www.tumblr.com/kyxmli/761697966465662977/yellowwwwwww-hi-i-absolutely-love-your-graphics?source=share) the post also has creds to the fanart used in them

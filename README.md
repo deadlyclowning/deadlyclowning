@@ -4,7 +4,7 @@
 
 
 <h2 strong div align="center"> 
- ${\textsf{\color{#dc1717}•✦───✧ ABOUT ME ✧───✦•}}$ 
+ ${\textsf{\color{#f74853}•✦───✧ ABOUT ME ✧───✦•}}$ 
 </h2 div> 
  
 **Name** ➺ Lyra / Micro
@@ -27,12 +27,12 @@ We are a system - alters will only front if under high stress or going through a
 </p> 
 
 <h2 strong div align="center"> 
- ${\textsf{\color{#dc1717}•✦───✧ MAIN LINKS ✧───✦•}}$ 
+ ${\textsf{\color{#f74853}•✦───✧ MAIN LINKS ✧───✦•}}$ 
 </h2 div> 
 
 <div align="center">
  
-***[Strawpage mailbox](<https://microsmailbox.straw.page/>)***
+***[StrawPage mailbox](https://microsmailbox.straw.page/)***
 </div>
 
 <p align="center">
@@ -40,7 +40,7 @@ We are a system - alters will only front if under high stress or going through a
 </p> 
 
 <h2 strong div align="center"> 
- ${\textsf{\color{#dc1717}•✦───✧ PONYTOWN ✧───✦•}}$ 
+ ${\textsf{\color{#f74853}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
 • i'll mainly be in my clownpierce skin hanging out near the trees in docks or with the mcyt/ls people
@@ -60,7 +60,7 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#dc1717}•✦───✧ DNI IF ✧───✦•}}$ 
 </h2 div>
 
-<strong> ${\textsf{\color{#f46b1b} • IF YOU POST ANY SHIPS RELATED TO REDSON }}$ 
+<strong> ${\textsf{\color{#f99fa1} • IF YOU POST ANY SHIPS RELATED TO REDSON }}$ 
 
 > **i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
 
@@ -81,7 +81,7 @@ We are a system - alters will only front if under high stress or going through a
 **• Radqueers**
  
 <h2 strong div align="center"> 
- ${\textsf{\color{#dc1717}•✦───✧ CREDITS ✧───✦•}}$ 
+ ${\textsf{\color{#f74853}•✦───✧ CREDITS ✧───✦•}}$ 
 </h2 div> 
 
 **• patern dividers (stars and moons, heart tuffted, etc) ➺ ([cafekitsune](<https://www.tumblr.com/cafekitsune>))**
@@ -93,3 +93,5 @@ We are a system - alters will only front if under high stress or going through a
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
 **• Clownpierce graphics ➺ [kyxmli](https://www.tumblr.com/kyxmli/761697966465662977/yellowwwwwww-hi-i-absolutely-love-your-graphics?source=share) the post also has creds to the fanart used in them**
+
+**• pfp cred ➺ hixbii on deviantart**

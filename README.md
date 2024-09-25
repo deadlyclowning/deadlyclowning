@@ -32,7 +32,7 @@ We are a system - alters will only front if under high stress or going through a
 
 <div align="center">
  
-***[F/O list](<https://lyras-blorbos.carrd.co/>) | [Strawpage mailbox](<https://microsmailbox.straw.page/>) | [My tumblr](https://www.tumblr.com/lunarbroadcast)***
+***[Strawpage mailbox](<https://microsmailbox.straw.page/>)***
 </div>
 
 <p align="center">
@@ -43,16 +43,17 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#dc1717}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
-• I'll usually be in my Soulbond skin vibing with the TCOAAL people or in the doocks looking for roleplays (feel free to say hi!)
+• i'll mainly be in my clownpierce skin hanging out near the treen in docks or with the mcyt/ls people
 <p align="center">
-<img width="600" src="https://github.com/user-attachments/assets/8d9cc827-c3f4-483b-8f3c-00f3b7860368">
+<img width="600" src="https://github.com/user-attachments/assets/f9efb749-bfa1-425f-bd03-0313e02a39fb">
 </p> 
+
+• dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown
 
 • I don't mind people cuddling or interacting! :3
 
 • Will gladly have a conversation! just dont be rude and were good!!
 
-• i have skins that dont have this account linked. For my personal comfort i dont wanna get told to jump all cause of a label (obv i wont be showing them- womp womp🫵🏽)
 </div>
 
 <h2 strong div align="center"> 

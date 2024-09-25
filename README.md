@@ -23,7 +23,7 @@
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
 </h3 div>
 <p align="center">
-<img width="600" src="https://github.com/user-attachments/assets/137d98db-ba26-40c1-b907-20e969a154f2">
+<img width="500" src="https://github.com/user-attachments/assets/137d98db-ba26-40c1-b907-20e969a154f2">
 </p> 
 
 <h2 strong div align="center"> 
@@ -36,16 +36,16 @@ We are a system - alters will only front if under high stress or going through a
 </div>
 
 <p align="center">
-<img width="600" src="https://github.com/user-attachments/assets/f9efb749-bfa1-425f-bd03-0313e02a39fb">
+<img width="500" src="https://github.com/user-attachments/assets/f9efb749-bfa1-425f-bd03-0313e02a39fb">
 </p> 
 
 <h2 strong div align="center"> 
  ${\textsf{\color{#dc1717}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
-• i'll mainly be in my clownpierce skin hanging out near the treen in docks or with the mcyt/ls people
+• i'll mainly be in my clownpierce skin hanging out near the trees in docks or with the mcyt/ls people
 <p align="center">
-<img width="600" src="https://github.com/user-attachments/assets/f9efb749-bfa1-425f-bd03-0313e02a39fb">
+<img width="400" src="https://github.com/user-attachments/assets/55ad4027-5bbe-4d30-b066-ccd9613c5cd7">
 </p> 
 
 • dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown
@@ -92,4 +92,4 @@ We are a system - alters will only front if under high stress or going through a
 
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
-**• Clownpierce graphics ➺ [kyxmli](https://www.tumblr.com/kyxmli/761697966465662977/yellowwwwwww-hi-i-absolutely-love-your-graphics?source=share) the post also has creds to the fanart used in them
+**• Clownpierce graphics ➺ [kyxmli](https://www.tumblr.com/kyxmli/761697966465662977/yellowwwwwww-hi-i-absolutely-love-your-graphics?source=share) the post also has creds to the fanart used in them**

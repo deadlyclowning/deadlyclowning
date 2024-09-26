@@ -45,7 +45,7 @@ We are a system - alters will only front if under high stress or going through a
 
 • i'll mainly be in my clownpierce skin hanging out near the trees in docks or with the mcyt/ls people
 <p align="center">
-<img width="400" src="https://github.com/user-attachments/assets/55ad4027-5bbe-4d30-b066-ccd9613c5cd7">
+<img width="400" src="https://github.com/user-attachments/assets/e2ccea1a-3532-4034-a071-3569a6050659">
 </p> 
 
 • dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown

@@ -54,6 +54,8 @@ We are a system - alters will only front if under high stress or going through a
 
 • Will gladly have a conversation! just dont be rude and were good!!
 
+• do avoid involving me in roleplays related to lifesteal or anything clownpierce related- im a new fan of this whole thing aaand idk much about the fandom KLSJKHJ
+
 </div>
 
 <h2 strong div align="center"> 
@@ -65,6 +67,8 @@ We are a system - alters will only front if under high stress or going through a
 > **i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
 
 > Since some people dont know how to read apparently!! I am not claiming him as a character. I dont give a flying fuck if you have him as an alter or whatever- im only ***UNCOMFORTABLE*** with ships about him ***BECAUSE I AM POSSESIVE OVER HIM***. There's a reason why i have that dni thing there and its for my own personal comfort- i will literally block tags on tumblr related to him in ships ***FOR THAT EXACT REASON***. My version of redson is a soulbond that formed in 2 years of watching the show meaning he is different ***FROM HIS SOURCE- HE IS A DIFFERENT VERSION OF HIS CANON SELF*** MEANING HE IS UNIQUE TO MY OWN SYSTEM. There are different redsons in the world and all of them are valid and i am NOT claiming them since they are not in MY system. So kindly shut the fuck up and learn how to actually read for once in your life!!!
+>
+> adding onto this- i dont care if you ship redson with other characters! i cant control that obviously. That mainly applies on tumblr or if you talk about it to me directly
 
 **• big 3 pro-contact/neutral-contact paraphiles**
 

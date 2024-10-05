@@ -45,8 +45,10 @@ We are a system - alters will only front if under high stress or going through a
 
 • i'll mainly be in my clownpierce or soulbond skins hanging out near the TCOAAL, mcyt/ls, proship area
 <p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/84599bc2-fe4b-40bf-8d89-c115ac976469">
+<img width="500" src="https://github.com/user-attachments/assets/22e7b393-7d10-4b30-b8b9-f052215a2d20">
 </p> 
+
+
 
 • dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown. I quite literally do not care if you are a proshipper or an anti but i will step in if i see some rando harrassing people in a pixel pony game (bro go outside and touch grass if you do that /srs if you think you're so cool for that then you're not.. you just look silly)
 

@@ -43,18 +43,18 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#f74853}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
-• i'll mainly be in my clownpierce skin hanging out near the trees in docks or with the mcyt/ls people
+• i'll mainly be in my clownpierce or soulbond skins hanging out near the TCOAAL, mcyt/ls, proship area
 <p align="center">
-<img width="400" src="https://github.com/user-attachments/assets/e2ccea1a-3532-4034-a071-3569a6050659">
+<img width="500" src="https://github.com/user-attachments/assets/84599bc2-fe4b-40bf-8d89-c115ac976469">
 </p> 
 
-• dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown
+• dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown. I quite literally do not care if you are a proshipper or an anti but i will step in if i see some rando harrassing people in a pixel pony game (bro go outside and touch grass if you do that /srs if you think you're so cool for that then you're not.. you just look silly)
 
 • I don't mind people cuddling or interacting! :3
 
 • Will gladly have a conversation! just dont be rude and were good!!
 
-• do avoid involving me in roleplays related to lifesteal or anything clownpierce related- im a new fan of this whole thing aaand idk much about the fandom KLSJKHJ
+• do avoid involving me in roleplays related to lifesteal or anything clownpierce related- im a new fan of this whole thing and idk much about the fandom KLSJKHJ
 
 </div>
 

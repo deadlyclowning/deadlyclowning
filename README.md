@@ -22,6 +22,9 @@
 <h3 strong div align="center"> 
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
 </h3 div>
+
+<a href="https://tamanotchi.world/16617c"><img src="https://tamanotchi.world/i2/16617" alt="It's tamaNOTchi! Click to feed!"></a> look at my bby yall aaaaa
+
 <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/137d98db-ba26-40c1-b907-20e969a154f2">
 </p> 

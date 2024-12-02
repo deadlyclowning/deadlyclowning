@@ -35,7 +35,7 @@ We are a system - alters will only front if under high stress or going through a
 
 <div align="center">
  
-***[StrawPage mailbox](https://microsmailbox.straw.page/)***
+***[StrawPage mailbox](https://microsmailbox.straw.page/)*** • ***[ColorMytree](https://colormytree.me/2024/01JE2WQAJETBS1Y9TZSX64N33N)*** • ***[F/O list](https://lyras-blorbos.carrd.co/)***
 </div>
 
 <p align="center">

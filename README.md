@@ -1,5 +1,5 @@
 <p align="center">
-<img width="600" src="https://github.com/user-attachments/assets/39eb402b-4789-47d5-b641-92f133453eef">
+<img width="600" src="https://github.com/user-attachments/assets/b31f50f9-d219-4430-9c54-a7cd0c65ca00">
 </p> 
 
 
@@ -26,8 +26,12 @@ We are a system - alters will only front if under high stress or going through a
 <a href="https://tamanotchi.world/16617c"><img src="https://tamanotchi.world/i2/16617" alt="It's tamaNOTchi! Click to feed!"></a> look at my bby yall aaaaa
 
 <p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/137d98db-ba26-40c1-b907-20e969a154f2">
-</p> 
+  <img src="https://github.com/user-attachments/assets/c917779e-3b27-450d-baaa-482aa691e029" width="500" />
+  <img src="https://github.com/user-attachments/assets/43ba6e7b-a725-4fdc-b0a4-981b1ee92202" width="500" /> 
+  <img src="https://github.com/user-attachments/assets/d5eca18a-df93-4218-8fd2-fe5e46f4c8f7" width="500" />
+  <img src="https://github.com/user-attachments/assets/c655fd36-c0d3-4df7-a303-b58ba387c66d" width="500" />
+</p>
+
 
 <h2 strong div align="center"> 
  ${\textsf{\color{#f74853}•✦───✧ MAIN LINKS ✧───✦•}}$ 
@@ -35,23 +39,16 @@ We are a system - alters will only front if under high stress or going through a
 
 <div align="center">
  
-***[StrawPage mailbox](https://microsmailbox.straw.page/)*** • ***[F/O list](https://lyras-blorbos.carrd.co/)***
+***[StrawPage mailbox](https://microsmailbox.straw.page/)*** • ***[F/O list](https://lyras-blorbos.carrd.co/)*** • ***[Deco my tree!](https://decomytree.com/home?hashedId=X3gh5QxjuLEh)***
 </div>
 
-<p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/f9efb749-bfa1-425f-bd03-0313e02a39fb">
-</p> 
+
 
 <h2 strong div align="center"> 
  ${\textsf{\color{#f74853}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
-• i'll mainly be in my clownpierce or soulbond skins hanging out near the TCOAAL, mcyt/ls, proship area
-<p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/22e7b393-7d10-4b30-b8b9-f052215a2d20">
-</p> 
-
-
+• i'll mainly be in my clownpierce or soulbond skins hanging out near the TCOAAL, mcyt/ls, proship area, or any other places with my cosplays :3
 
 • dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown. I quite literally do not care if you are a proshipper or an anti but i will step in if i see some rando harrassing people in a pixel pony game (bro go outside and touch grass if you do that /srs if you think you're so cool for that then you're not.. you just look silly)
 
@@ -67,7 +64,7 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#dc1717}•✦───✧ DNI IF ✧───✦•}}$ 
 </h2 div>
 
-<strong> ${\textsf{\color{#f99fa1} • IF YOU POST ANY SHIPS RELATED TO REDSON }}$ 
+<strong> ${\textsf{\color{#f99fa1} • YOU POST ANY SHIPS RELATED TO REDSON }}$ 
 
 > **i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
 
@@ -93,14 +90,11 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#f74853}•✦───✧ CREDITS ✧───✦•}}$ 
 </h2 div> 
 
-**• patern dividers (stars and moons, heart tuffted, etc) ➺ ([cafekitsune](<https://www.tumblr.com/cafekitsune>))**
-
-**• bar dividers ➺ ([peachesboard](<https://www.tumblr.com/peachesboard>))**
 
 **• userboxes ➺ mee :3c**
 
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
-**• Clownpierce graphics ➺ [kyxmli](https://www.tumblr.com/kyxmli/761697966465662977/yellowwwwwww-hi-i-absolutely-love-your-graphics?source=share) the post also has creds to the fanart used in them**
+**• Heather Chandler graphics & userbox icon ➺ infectedrpd (post also has art cred. I wasnt able to rb it due to them having proship dni in their bio)**
 
-**• pfp cred ➺ hixbii on deviantart**
+**• pfp cred ➺ szin**

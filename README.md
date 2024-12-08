@@ -39,7 +39,7 @@ We are a system - alters will only front if under high stress or going through a
 
 <div align="center">
  
-***[StrawPage mailbox](https://microsmailbox.straw.page/)*** • ***[F/O list](https://lyras-blorbos.carrd.co/)*** • ***[Deco my tree!](https://decomytree.com/home?hashedId=X3gh5QxjuLEh)***
+***[StrawPage mailbox](https://microsmailbox.straw.page/)*** • ***[F/O list](https://lyras-blorbos.carrd.co/)*** • ***[Deco my tree!!](https://decomytree.com/home?hashedId=X3gh5QxjuLEh)***
 </div>
 
 
@@ -48,7 +48,7 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#f74853}•✦───✧ PONYTOWN ✧───✦•}}$ 
 </h2 div> 
 
-• i'll mainly be in my clownpierce or soulbond skins hanging out near the TCOAAL, mcyt/ls, proship area, or any other places with my cosplays :3
+• i'll mainly be in my redson or cosplay skins hanging out near the TCOAAL, mcyt/ls, proship area, or any other places with my cosplays :3
 
 • dont even bother talking to me about fandom discourse- i have bigger things to worry about than what ppl do in online spaces- i'd rather do that on a diff platform than ponytown. I quite literally do not care if you are a proshipper or an anti but i will step in if i see some rando harrassing people in a pixel pony game (bro go outside and touch grass if you do that /srs if you think you're so cool for that then you're not.. you just look silly)
 
@@ -61,7 +61,7 @@ We are a system - alters will only front if under high stress or going through a
 </div>
 
 <h2 strong div align="center"> 
- ${\textsf{\color{#dc1717}•✦───✧ DNI IF ✧───✦•}}$ 
+ ${\textsf{\color{#f74853}•✦───✧ DNI IF ✧───✦•}}$ 
 </h2 div>
 
 <strong> ${\textsf{\color{#f99fa1} • YOU POST ANY SHIPS RELATED TO REDSON }}$ 

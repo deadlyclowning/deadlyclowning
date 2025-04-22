@@ -1,11 +1,14 @@
+<h1 strong align="center"> 
+ ${\textsf{\color{#e3bb5f}✦A world where Cookies break free from the confines of taste and aroma...✦}}$ 
+</h1> 
 
 <p align="center">
-<img width="700" src="https://github.com/user-attachments/assets/fe800372-9c60-4f97-86bc-ebbeaaab13d6">
+<img width="800" src="https://github.com/user-attachments/assets/fe800372-9c60-4f97-86bc-ebbeaaab13d6">
 </p> 
 
-<h2 strong div align="center"> 
+<h2 strong align="center"> 
  ${\textsf{\color{#f74853}•✦───✧ ABOUT ME ✧───✦•}}$ 
-</h2 div> 
+</h2> 
  
 **Name** ➺ Lyra / Micro
 

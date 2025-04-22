@@ -7,7 +7,7 @@
 </p> 
 
 <h2 strong align="center"> 
- ${\textsf{\color{#f74853}•✦───✧ ABOUT ME ✧───✦•}}$ 
+ ${\textsf{\color{#feea94}•✦───✧ ABOUT ME ✧───✦•}}$ 
 </h2> 
  
 **Name** ➺ Lyra / Micro
@@ -29,10 +29,10 @@ We are a system - alters will only front if under high stress or going through a
 <a href="https://tamanotchi.world/16617c"><img src="https://tamanotchi.world/i2/16617" alt="It's tamaNOTchi! Click to feed!"></a> look at my bby yall aaaaa
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/c917779e-3b27-450d-baaa-482aa691e029" width="400" />
-  <img src="https://github.com/user-attachments/assets/43ba6e7b-a725-4fdc-b0a4-981b1ee92202" width="400" /> 
-  <img src="https://github.com/user-attachments/assets/d5eca18a-df93-4218-8fd2-fe5e46f4c8f7" width="400" />
-  <img src="https://github.com/user-attachments/assets/c655fd36-c0d3-4df7-a303-b58ba387c66d" width="400" />
+  <img src="https://github.com/user-attachments/assets/50d1fa4c-2422-4a4d-bdba-d823d84ddac5" width="400" />
+  <img src="https://github.com/user-attachments/assets/53a469f6-1303-45e3-84e0-a5f209043ba5" width="400" /> 
+  <img src="https://github.com/user-attachments/assets/8660bb3b-6e52-406e-923b-88ecaa2ac4a8" width="400" />
+  <img src="https://github.com/user-attachments/assets/525484d2-a9fd-4f89-a734-c9c0914e65a3" width="400" />
 </p>
 
 

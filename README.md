@@ -1,6 +1,6 @@
-<h1 strong align="center"> 
+<h2 strong align="center"> 
  ${\textsf{\color{#e3bb5f}✦A world where Cookies break free from the confines of taste and aroma...✦}}$ 
-</h1> 
+</h2> 
 
 <p align="center">
 <img width="800" src="https://github.com/user-attachments/assets/fe800372-9c60-4f97-86bc-ebbeaaab13d6">

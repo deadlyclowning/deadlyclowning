@@ -80,7 +80,7 @@ We are a system - alters will only front if under high stress or going through a
 **• BIGGEST FUCKING BLOCK IF YOU DEFEND OR SUPPORT TRUMP, ELON MUSK OR ANYBODY RELATED TO THEM**
  
 <h2 strong div align="center"> 
- ${\textsf{\color{#f99fa1}•✦───✧ CREDITS ✧───✦•}}$ 
+ ${\textsf{\color{#e3bb5f}•✦───✧ CREDITS ✧───✦•}}$ 
 </h2 div> 
 
 **• mystic flour cookie layout(banner, userboxes)➺ i edited them but the assets are from the [CRK wiki](https://cookierunkingdom.fandom.com/wiki/Mystic_Flour_Cookie/Gallery)**

@@ -12,7 +12,7 @@
  
 **Name** ➺ Lyra / Micro
 
-**Age** ➺ 18
+**Age** ➺ 19
 
 **Pronouns** ➺ she/they
 
@@ -46,7 +46,7 @@ We are a system - alters will only front if under high stress or going through a
 
 **• very akward- if i suddenly go quiet during a conversation i just dont know what else to say KSJKAJS- just dont be rude and were good!!**
 
-**• if you mention any ships related to redson, shadow milk, and mystic flour i will block you (for my own sake and comfort)**
+**• if you mention any ships related to redson, the beast cookies, hajime/izuru i will block you (for my own sake and comfort)**
 
 **• Dont send friend requests if we didnt interact much- it floods my list**
 

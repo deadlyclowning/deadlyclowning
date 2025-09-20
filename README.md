@@ -1,9 +1,10 @@
 <h1 strong align="center"> 
- ${\textsf{\color{#ffc77f}𝑺𝒐𝒎𝒆 𝒄𝒂𝒍𝒍 𝒎𝒆 𝒂𝒓𝒓𝒐𝒈𝒂𝒏𝒕. 𝑴𝒐𝒔𝒕𝒍𝒚 𝒕𝒉𝒆𝒚 𝒂𝒓𝒆 𝒋𝒆𝒂𝒍𝒐𝒖𝒔.}}$ 
+ ${\textsf{\color{#ffc77f}𝙄 𝙬𝙤𝙪𝙡𝙙 𝙣𝙚𝙫𝙚𝙧 𝙛𝙖𝙡𝙡 𝙞𝙣 𝙡𝙤𝙫𝙚 𝙖𝙜𝙖𝙞𝙣 𝙪𝙣𝙩𝙞𝙡 𝙄 𝙛𝙤𝙪𝙣𝙙 𝙝𝙚𝙧}}$ 
 </h1> 
 
 <p align="center">
-<img width="800" src="https://github.com/user-attachments/assets/d940c802-974a-4df3-985d-c5fe0c838e39">
+<img width="800" src="https://github.com/user-attachments/assets/f878c457-cbf0-4173-9c5c-5149d7808f40">
+
 
 <h2 strong align="center"> 
  ${\textsf{\color{#ffc77f}•✦───✧ ABOUT ME ✧───✦•}}$ 
@@ -17,7 +18,7 @@
 
 **Sexuality** ➺ bisexual
 
-**Interests** ➺ marvel, theater, baking, arts and crafts, cats, lego monkie kid, fortnite, batim, cookie run kingdom, danganronpa
+**Interests** ➺ marvel, theater, baking, arts and crafts, cats, lego monkie kid, fortnite, batim, cookie run, danganronpa
 
 <h3 strong div align="center"> 
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
@@ -29,7 +30,8 @@ We are a system - alters will only front if under high stress or going through a
   <img src="https://github.com/user-attachments/assets/350d9aa1-d2dc-4a72-a057-e2b3506564af" width="400" />
   <img src="https://github.com/user-attachments/assets/ba54dde2-7ffe-4add-a2ff-07fa5c65e9d9" width="400" /> 
   <img src="https://github.com/user-attachments/assets/3751ec95-766b-4497-bdab-05c0d1aad426" width="400" />
-  <img src="https://github.com/user-attachments/assets/74f5f3ff-ef45-4fed-9640-c91bcc2b340d" width="400" />
+  <img src="https://github.com/user-attachments/assets/15697965-c472-4e44-adea-b2a5b64c4ba5" width="400" />
+ <img src="https://github.com/user-attachments/assets/74f5f3ff-ef45-4fed-9640-c91bcc2b340d" width="400" />
 </p>
 
 
@@ -45,7 +47,7 @@ We are a system - alters will only front if under high stress or going through a
 
 **• very akward- if i suddenly go quiet during a conversation i just dont know what else to say KSJKAJS- just dont be rude and were good!!**
 
-**• if you mention any ships related to redson, the beast cookies, hajime/izuru i will block you (for my own sake and comfort)**
+**• if you mention any ships related to my f/os i'll block you (nothing personal- just comfort stuff)**
 
 **• Dont send friend requests if we didnt interact much- it floods my list**
 
@@ -84,10 +86,10 @@ We are a system - alters will only front if under high stress or going through a
  ${\textsf{\color{#ffc77f}•✦───✧ CREDITS ✧───✦•}}$ 
 </h2 div> 
 
-**• Banner ➺ [Doctor Strange: Live from the Sanctum Sanctorum](https://www.youtube.com/watch?v=7-Cl-o4NCK0)**
-
 **• Userboxes ➺ me!**
 
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
-**• pfp cred ➺ [It's Jeff Infinity Comic: Taste test pt1](https://www.marvel.com/comics/issue/109134/its_jeff_infinity_comic_2021_35)**
+**• Neka cc used in my banner ➺ [즐거운하루](https://www.neka.cc/composer/14253)**
+
+**• Pfp cred ➺ [四八葉子糕](https://www.neka.cc/composer/14159)**

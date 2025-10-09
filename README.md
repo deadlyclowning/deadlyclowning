@@ -18,7 +18,7 @@
 
 **Sexuality** ➺ bisexual
 
-**Interests** ➺ marvel, theater, baking, arts and crafts, cats, lego monkie kid, fortnite, batim, cookie run, danganronpa
+**Interests** ➺ marvel, theater, baking, arts and crafts, cats, lego monkie kid, batim, cookie run, danganronpa, warframe
 
 <h3 strong div align="center"> 
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting

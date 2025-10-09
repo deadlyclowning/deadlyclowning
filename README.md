@@ -56,23 +56,24 @@ We are a system - alters will only front if under high stress or going through a
 </div>
 
 <h2 strong div align="center"> 
- ${\textsf{\color{#ffc77f}•✦───✧ DNI IF ✧───✦•}}$ 
+ ${\textsf{\color{#ffc77f}•✦───✧ WILL BLOCK IF ✧───✦•}}$ 
 </h2 div>
 
-<strong> ${\textsf{\color{#da2c25} • YOU SHIP ANYTHING RELATED TO REDSON }}$ 
+<strong> ${\textsf{\color{#da2c25} • YOU SHIP ANYTHING RELATED TO REDSON, STEPHEN STRANGE AND ELDER PRICE }}$ 
 
-> **i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships) Do not talk about redson ships to me- you will be blocked instantly**
+> **I am VERY possesive over redson since he is a soulbond and we are married in headspace. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
 
-> **yknow what? im claiming redson. He's mine and yall cant do anything about it. We are soulmates in every universe sooo fuck you :D (someone assumed i claimed him before and they got mad sooo im gonna make more people mad)**
-> **we got married last year soo fuck you! i literally have a ring beause of it sooo ermm yeaa you cant claim him he's my partner ^^**
+> **I am engaged to Kevin Price. I see my relationship with him as real and would like for doubles to not mention ships related to him**
+
+> **Same goes for doctor strange. We're married in headspace. I take my relationship with Stephen, Redson, ahd Price very seriously.**
 
 **• big 3 pro-contact/neutral-contact paraphiles**
 
-**• Basic DNI (homophobia, transphobia, racism)**
+**• Homophobic, transphobic, racist**
 
 **• Vivziepop apologists**
 
-**• people against selfshipping**
+**• people against selfshipping & soulbonds**
 
 **• zionists/israel supporters**
 

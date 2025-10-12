@@ -20,6 +20,8 @@
 
 **Interests** ➺ marvel, theater, baking, arts and crafts, cats, lego monkie kid, batim, cookie run, danganronpa, warframe
 
+**Extra** ➺ If i followed you on here its probably cause you hang around the proship tree. You guys are so cool im giving you all a singular paper flower so it doesnt wilt :3
+
 <h3 strong div align="center"> 
 We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
 </h3 div>

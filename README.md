@@ -5,9 +5,9 @@
 <p align="center">
 <img width="800" src="https://github.com/user-attachments/assets/6ce3b4e6-3a4e-4fa4-8699-693041904055">
 
-<h2 strong align="center"> 
+<h1 strong align="center"> 
  ${\textsf{\color{#fff00d}•✦───✧ ABOUT ME ✧───✦•}}$ 
-</h2> 
+</h1> 
  
 **Name** ➺ Lyra / Micro
 
@@ -35,9 +35,9 @@ We are a system - alters will only front if under high stress or going through a
 <img width="400" alt="soulbond userbox" src="https://github.com/user-attachments/assets/508053e5-a490-4789-a949-cc1ee379129f" />
 </p>
 
-<h2 strong div align="center"> 
+<h1 strong div align="center"> 
  ${\textsf{\color{#fff00d}•✦───✧ PONYTOWN ✧───✦•}}$ 
-</h2 div> 
+</h1 div> 
 
 **• i'll mainly be in my yumeship skins in the proship tree. You will NOT see this account linked if im in the CRK, LMK, LS/MCYT area (i value my sanity soo no death threats from you goofy people soo womp womp 🫵)**
 
@@ -83,9 +83,9 @@ We are a system - alters will only front if under high stress or going through a
 
 **• BIGGEST FUCKING BLOCK IF YOU DEFEND OR SUPPORT TRUMP, ELON MUSK OR ANYBODY RELATED TO THEM**
  
-<h2 strong div align="center"> 
+<h1 strong div align="center"> 
  ${\textsf{\color{#fff00d}•✦───✧ CREDITS ✧───✦•}}$ 
-</h2 div> 
+</h1 div> 
 
 **• Userboxes ➺ me!**
 

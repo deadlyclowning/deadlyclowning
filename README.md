@@ -3,7 +3,7 @@
 </h2> 
 
 <p align="center">
-<img width="850" src="https://github.com/user-attachments/assets/6ce3b4e6-3a4e-4fa4-8699-693041904055">
+<img width="900" src="https://github.com/user-attachments/assets/6ce3b4e6-3a4e-4fa4-8699-693041904055">
 
 <h1 strong align="center"> 
  ${\textsf{\color{#fff00d}•✦───✧ ABOUT ME ✧───✦•}}$ 

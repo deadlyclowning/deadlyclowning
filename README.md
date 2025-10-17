@@ -33,6 +33,8 @@ We are a system - alters will only front if under high stress or going through a
   <img width="400" alt="stephen strange userbox" src="https://github.com/user-attachments/assets/d7bd2cf1-f9df-4ebb-8502-aad2ce3ff412" />
   <img width="400" alt="redson userbox" src="https://github.com/user-attachments/assets/313866d6-985d-4ebe-b9a5-4f1a3dac3dbe" />
 <img width="400" alt="soulbond userbox" src="https://github.com/user-attachments/assets/508053e5-a490-4789-a949-cc1ee379129f" />
+ <img width="400" alt="proship userbox" src="https://github.com/user-attachments/assets/c142982d-94a6-4a1d-88c6-bf801a73b487" />
+
 </p>
 
 <h1 strong div align="center"> 
@@ -94,3 +96,6 @@ We are a system - alters will only front if under high stress or going through a
 **• Banner and header cred ➺ Ricedeity**
 
 **• Pfp cred ➺ Ricedeity**
+
+<p align="center">
+<img width="500" alt="yi xi" src="https://github.com/user-attachments/assets/860c760e-b747-41bb-8c86-e2dc0e222861" />

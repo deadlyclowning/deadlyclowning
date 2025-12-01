@@ -9,13 +9,13 @@
 </p>
 
 <img src="https://github.com/user-attachments/assets/da0156f1-c032-481c-a31b-213d1d52e0ea"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#fe3837}GIVE ME SOMETHING TO BELIEVE IN}}$ <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>
-<p align="center"> ${\textsf{\color{#fe3837}Lyra}}$ ㅤ/ㅤ<i> Micro </i> <br> 19 ♡ㅤShe⠀⸝⠀They ⸝ It ⸝ He <br> Soulbonder ⎯⎯⎯ Yumeshipper <br> ${\textsf{\color{#fe3837}Neutral}}$⎯⎯shipㅤ &&.ㅤ ${\textsf{\color{#fe3837}anti}}$⎯⎯harassment. <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>   ${\textsf{\color{#fe3837}ALL THESE HANDS HAVE GOT A HOLD OF ME}}$
+<p align="center"> ${\textsf{\color{#fe3837}Lyra}}$ ㅤ/ㅤ<i> Micro </i> <br> 19 ♡ㅤShe⠀⸝⠀They ⸝ It ⸝ He <br> Soulbonder ⎯⎯⎯ Yumeshipper <br> ${\textsf{\color{#fe3837}Pro}}$⎯⎯shipㅤ &&.ㅤ ${\textsf{\color{#fe3837}anti}}$⎯⎯harassment. <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>   ${\textsf{\color{#fe3837}ALL THESE HANDS HAVE GOT A HOLD OF ME}}$
 <br>
 
 <br>
 <img src="https://github.com/user-attachments/assets/6cb75a68-398b-45a8-a03a-bedf5edb23f1" align="right" width="40%"> <p align="center">   ${\textsf{\color{#fe3837}GIVE ME SOMETHING TO BELIEVE IN}}$ <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}dni.}}$ ღ </summary> racists,ㅤharmful transids, <br> zoos,ㅤradqueers,ㅤ<br> people who harrass others,ㅤpedos,ㅤabelists. <br> ${\textsf{\color{#fe3837}i block and hide freely.}}$ <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}dni.}}$ ღ </summary> racists,ㅤharmful transids, <br> zoos,ㅤradqueers,ㅤ<br> people who harrass others/antis,ㅤpedos,ㅤabelists. <br> ${\textsf{\color{#fe3837}i block and hide freely.}}$ <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}interests.}}$ㅤღ </summary> ${\textsf{\color{#fe3837}Tron: ARES and BOM musical are my mains rn}}$ <br> lego monkie kid,ㅤbaking,ㅤwarframe, <br> hazbin hotel,ㅤCRK/OB/TOA,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/> <p align="center"> ${\textsf{\color{#fe3837}AS ALIVE AS YOU NEED ME TO BE}}$
 
 <p align="center">

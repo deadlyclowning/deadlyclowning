@@ -1,5 +1,3 @@
-WIP - next layout theme: shadow milk cookie
-
 <p align="center">
 <img src="https://github.com/user-attachments/assets/84640edd-58de-4a6f-b659-90961a91a7fa" width="1000" height="1000%""/>
 </p>

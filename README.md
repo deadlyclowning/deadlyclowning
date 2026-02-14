@@ -16,7 +16,7 @@
   <br>Genderfluid & bisexual
   <br>Studying forensics and law
   <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Proship, anti-harrassment, neu-endo, pro-para, anti-contact<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Proship, anti-harrassment, neu-endo, pro-para, anti-contact, jesterkin<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
@@ -40,7 +40,7 @@
   <br>I WILL match your tone if youre being annoying. Treat others how you'd like to be treated
   <br>I am open to having a civil conversation with antis <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Soulbonds and Kins}}$ㅤ⊹ ࣪ ˖ </summary> Soulbonds- RedSon, Stephen Strange, Shadow Milk cookie, Mystic Flour cookie, Clownpierce, Ordis, Kieran Valentine
-  <br> Kins- Dipper Pines, Black Sapphire cookie, Retry now!Miku, Komi Shouko </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}CAN YOU READ BETWEEN THE MORSE CODE LINES?}}$
+  <br> Kins- Dipper Pines, Black Sapphire cookie, Retry now!Miku, Komi Shouko, hugh morris </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}CAN YOU READ BETWEEN THE MORSE CODE LINES?}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>

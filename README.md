@@ -67,8 +67,7 @@
   <br>Enamel roses - droideplane on tumblr
   <br>Aanimated divider - cafekitsune on tumblr
   <br>Top and bottom banners - xycrowlo on tumblr
-  <br>Profile picture - chez_llama on instagram
-  <br>Enamel roses dividers - droideplane on tumblr</details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+  <br>Profile picture - chez_llama on instagram </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <br> ${\textsf{\color{#ff7bc2}DRAIN YOU O' YOUR LOVE UNTIL YOU HATE ME}}$
 
 <p align="center">

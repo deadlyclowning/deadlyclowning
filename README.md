@@ -51,8 +51,7 @@
 }}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Safes/Friends.}}$ㅤ⊹ ࣪ ˖ </summary> ${\textsf{\color{#ff7bc2}I tend to forget who i interact with so please lmk if you want to be added to this list!}}$
-  <br><a href="https://github.com/PrettyCherub"> PrettyCherub </a>
-  <br><a href="https://github.com/Cannibalistic-Ways-Of-Life"> Cannibalistic-Ways-Of-Life </a> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+  <br><a href="https://github.com/PrettyCherub"> PrettyCherub </a> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <br> ${\textsf{\color{#ff7bc2}TO BEG YOU, "PRETTY BOY, PLEASE, LET ME DIE"
 }}$
 

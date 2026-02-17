@@ -17,7 +17,7 @@
   <br>Studying forensics and law
   <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Proship, anti-harrassment, neu-endo, pro-para, anti-contact, jesterkin
-    <br>${\textsf{\color{#ff7bc2}I do not associate myself with the proship tree now.}}$ <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
+    <br>${\textsf{\color{#ff7bc2}I do not associate myself with the proship tree for now.}}$ <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>

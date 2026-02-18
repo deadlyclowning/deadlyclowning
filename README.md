@@ -17,7 +17,7 @@
   <br>Studying forensics and law
   <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Proship, anti-harrassment, neu-endo, pro-para, anti-contact, jesterkin
-    <br>${\textsf{\color{#ff7bc2}I do not associate myself with the proship tree for now.}}$ <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
+    <br><a href="https://github.com/deadlyclowning/proshiptree_stance"> Why i distanced myself from the proship tree </a> <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
@@ -26,7 +26,7 @@
 <br>
 <img src="https://github.com/user-attachments/assets/1a98afeb-b503-4aee-9fa5-c6abd84dfd8e" align="right" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}I COULD SUCK YOU DRY ON THE ROCKS WITH A TWIST}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Dni.}}$ ⊹ ࣪ ˖ </summary> racists,ㅤharmful transids, <br> zoos,ㅤradqueers,ㅤ<br> people who harrass others/antis,ㅤpedos,ㅤabelists. <a href="https://github.com/deadlyclowning/proshiptree_stance"> The proship tree </a> <br> ${\textsf{\color{#ff7bc2}i block and hide freely.}}$ <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Dni.}}$ ⊹ ࣪ ˖ </summary> racists,ㅤharmful transids, <br> zoos,ㅤradqueers,ㅤ<br> people who harrass others/antis,ㅤpedos,ㅤabelists. <br> ${\textsf{\color{#ff7bc2}i block and hide freely.}}$ <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Interests.}}$ㅤ⊹ ࣪ ˖ </summary> ${\textsf{\color{#ff7bc2}Tron: ARES, TBOM, MCU and CRK are my mains rn}}$ <br> lego monkie kid,ㅤbaking,ㅤwarframe, <br> hazbin hotel,ㅤCRK/OB/TOA,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}BUT JUST LIKE A VAMPIRE, I DON'T EXIST}}$
 
 <p align="center">

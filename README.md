@@ -8,7 +8,7 @@
 <img src="https://github.com/user-attachments/assets/e0d99913-bd7e-4e37-8fc7-d0acc27ae2cb" width="800" height="800%""/>
 </p>
 
-<img src="https://github.com/user-attachments/assets/35f310a0-dba6-43c2-b6af-9ccc5ff52f55" align="left" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}I COULD DRINK YOUR BLOOD IF YOU LET ME, BABY}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img src="https://github.com/user-attachments/assets/35f310a0-dba6-43c2-b6af-9ccc5ff52f55" align="left" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}TIL I MET YOU I WAS REMINISCING}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}About Me.}}$ ⊹ ࣪ ˖ </summary> Micro / Lyra
   <br>She/her they/them he/him it/its
@@ -17,23 +17,23 @@
   <br>Studying forensics and law
   <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Proship, anti-harrassment, neu-endo, pro-para, anti-contact, jesterkin
-    <br><a href="https://github.com/deadlyclowning/proshiptree_stance"> Why i distanced myself from the proship tree </a> <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
+    <br><a href="https://github.com/deadlyclowning/proshiptree_stance"> Why i distanced myself from the proship tree </a> <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}'BOUT THE PLACES I BEEN MISSING}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
 </p>
 
 <br>
-<img src="https://github.com/user-attachments/assets/1a98afeb-b503-4aee-9fa5-c6abd84dfd8e" align="right" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}I COULD SUCK YOU DRY ON THE ROCKS WITH A TWIST}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img src="https://github.com/user-attachments/assets/1a98afeb-b503-4aee-9fa5-c6abd84dfd8e" align="right" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}BUT NOW I DON'T WANT THESE DAYS TO END}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Dni.}}$ ⊹ ࣪ ˖ </summary> racists,ㅤharmful transids, <br> zoos,ㅤradqueers,ㅤ<br> people who harrass others/antis,ㅤpedos,ㅤabelists. <br> ${\textsf{\color{#ff7bc2}i block and hide freely.}}$ <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Interests.}}$ㅤ⊹ ࣪ ˖ </summary> ${\textsf{\color{#ff7bc2}Tron: ARES, TBOM, MCU and CRK are my mains rn}}$ <br> lego monkie kid,ㅤbaking,ㅤwarframe, <br> hazbin hotel,ㅤCRK/OB/TOA,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}BUT JUST LIKE A VAMPIRE, I DON'T EXIST}}$
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Interests.}}$ㅤ⊹ ࣪ ˖ </summary> ${\textsf{\color{#ff7bc2}Tron: ARES, TBOM, MCU and CRK are my mains rn}}$ <br> lego monkie kid,ㅤbaking,ㅤwarframe, <br> hazbin hotel,ㅤCRK/OB/TOA,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}JUST LIKE TWO KIDS EATING COTTON CANDY}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c0adf168-6e4b-4c0b-8b2b-49d1512ef646" width="800" height="800%""/>
 </p>
 
-<img src="https://github.com/user-attachments/assets/048ef54b-509e-4fb9-be49-a9dbce48a6a1" align="left" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}WALKIE-TALKIE STATIC, WHITE NOISE TELEPATH}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img src="https://github.com/user-attachments/assets/048ef54b-509e-4fb9-be49-a9dbce48a6a1" align="left" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}NOW WE'RE DRINKING COKE AND BRANDY}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Ponytown Boundaries.}}$ ⊹ ࣪ ˖ </summary> Dont add me if we only talked for a couple minutes
   <br>c+h is encouraged unless said otherwise
@@ -41,34 +41,32 @@
   <br>I WILL match your tone if youre being annoying. Treat others how you'd like to be treated
   <br>I am open to having a civil conversation with antis <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Soulbonds and Kins}}$ㅤ⊹ ࣪ ˖ </summary> Soulbonds- RedSon, Stephen Strange, Shadow Milk cookie, Mystic Flour cookie, Clownpierce, Ordis, Kieran Valentine
-  <br> Kins- Dipper Pines, Black Sapphire cookie, Retry now!Miku, Komi Shouko, Seltzer cookie </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}CAN YOU READ BETWEEN THE MORSE CODE LINES?}}$
+  <br> Kins- Dipper Pines, Black Sapphire cookie, Retry now!Miku, Komi Shouko, Seltzer cookie </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}YOU MAKE ME FEEL LIKE A KID AGAIN}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
 </p>
 
 <br>
-<img src="https://github.com/user-attachments/assets/5162fb6e-4527-475b-95de-6fad2df09df1" align="right" width="40%"> <p align="center"> ${\textsf{\color{#ff7bc2}DEAD FROM THE NECK UP, BUT LIVING JUST ENOUGH
-}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img src="https://github.com/user-attachments/assets/5162fb6e-4527-475b-95de-6fad2df09df1" align="right" width="40%"> <p align="center"> ${\textsf{\color{#ff7bc2}YOU GIVE ME THAT 50 WATT, 50 WATT, 50 WATT SMILE}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Safes/Friends.}}$ㅤ⊹ ࣪ ˖ </summary> ${\textsf{\color{#ff7bc2}I tend to forget who i interact with so please lmk if you want to be added to this list!}}$
   <br><a href="https://github.com/PrettyCherub"> PrettyCherub </a> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<br> ${\textsf{\color{#ff7bc2}TO BEG YOU, "PRETTY BOY, PLEASE, LET ME DIE"
-}}$
+<br> ${\textsf{\color{#ff7bc2}'CAUSE YOU TURN ME ON AND I LAUGH FOR A WHILE}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c0adf168-6e4b-4c0b-8b2b-49d1512ef646" width="800" height="800%""/>
 </p>
 
 <br>
-<img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="right" width="20%"> <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="left" width="20%"> <p align="center"> ${\textsf{\color{#ff7bc2}WELL, I COULD DRINK YOUR BLOOD IF YOU LET ME, BABY}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="right" width="20%"> <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="left" width="20%"> <p align="center"> ${\textsf{\color{#ff7bc2}I BEEN FEELING THINGS, YOU MAKE ME LAUGH LIKE A CHILD}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Credits.}}$ ⊹ ࣪ ˖ </summary>
   <br>Enamel roses - droideplane on tumblr
   <br>Aanimated divider - cafekitsune on tumblr
   <br>Top and bottom banners - xycrowlo on tumblr
   <br>Profile picture - mattypattypinky on tumblr </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<br> ${\textsf{\color{#ff7bc2}DRAIN YOU O' YOUR LOVE UNTIL YOU HATE ME}}$
+<br> ${\textsf{\color{#ff7bc2}WITH THAT 50 WATT, 50 WATT SMILE}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/e0d99913-bd7e-4e37-8fc7-d0acc27ae2cb" width="800" height="800%""/>
